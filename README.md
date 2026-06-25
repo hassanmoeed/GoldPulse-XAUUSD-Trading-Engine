@@ -116,7 +116,7 @@ Official Participation Certificate awarded
 
 Engineered for educational and research purposes. Forex and gold trading carries substantial financial risk. Validate thoroughly on a demo account before deploying real capital.
 
-![Certificate](files/certificate.jpg)
+WhatsApp Image 2026-06-25 at 5.14.26 PM.jpeg
 
 ---
 
