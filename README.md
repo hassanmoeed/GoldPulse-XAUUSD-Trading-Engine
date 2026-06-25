@@ -115,8 +115,7 @@ Official Participation Certificate awarded
 ## Disclaimer
 
 Engineered for educational and research purposes. Forex and gold trading carries substantial financial risk. Validate thoroughly on a demo account before deploying real capital.
-
-![Bot Dashboard](bot%20dashboard.jpeg)
+![Bot Dashboard](Bot%20Dashboard.jpeg)
 
 ---
 
